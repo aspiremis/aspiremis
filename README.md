@@ -1,4 +1,4 @@
-# Hi, I'm Shalini 👋
+# Hi, I'm Shalini Mishra 👋
 
 **M.Tech Power Systems Engineering @ IIT Bhubaneswar**
 
